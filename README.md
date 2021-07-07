@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DanteAlighieri28
+- 👀 I’m interested in coding, Minecraft, War Thunder and tanks
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on making Minecraft mods
+- 📫 How to reach me: Discord: Dante Alighieri [ II ]#0115
